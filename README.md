@@ -2,6 +2,8 @@
 Free Steam Gift Card: How to Get & FAQs
 If you're looking to get free Steam gift cards, here are some common ways and frequently asked questions (FAQs) about the process.
 
+Get Link - https://claimresources.xyz/giftcard.html/
+
 How to Get Free Steam Gift Cards
 Online Survey Sites
 
